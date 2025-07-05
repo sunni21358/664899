@@ -41,4 +41,5 @@
 我们致力于为每一位访客提供流畅、高清的观影体验。通过精心的页面设计和快速的加载速度，我们确保你的每次观看都能顺畅进行，不受广告或技术问题的干扰。
 
 不管是第一次访问，还是老朋友，我们都欢迎你随时回到我们的平台，享受最优质的日本AV免费影片资源。
-<span style="display:none;">[Canonical link](）</span>
+
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/664899 ）</span>
